@@ -11,6 +11,7 @@ Take your FiveM server to the next level with the brand new Advanced Fuel System
 📥 DOWNLOAD & ACCESS:
 Available right now exclusively on our Discord server!
 👉 Join us here: https://discord.gg/hAfd5t2YXB
+🎥 video: https://youtu.be/Gw7a_lokl6Q
 
 Don't forget to like, comment, and subscribe for more free FiveM releases!
 
